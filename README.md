@@ -1,1 +1,1 @@
-[rsschool-cv](https://ZHendos24.github.io/rsschool-cv/cv)
+[rsschool-cv](https://ZHendos24.github.io/rsschool-cv/)
